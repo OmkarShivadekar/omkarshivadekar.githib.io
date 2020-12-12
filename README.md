@@ -1,1 +1,1 @@
-# omkarshivadekar.githib.io
+# omkarshivadekar.github.io
